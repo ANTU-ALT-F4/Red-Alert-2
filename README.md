@@ -13,7 +13,7 @@ II. TẢI THỦ CÔNG TỪNG PHẦN TỪ NHÀ PHÁT TRIỂN **[Không lỗi]**
 
 - [ [STEP_1] Red Alert 2 Yuri_s Revenge](https://drive.google.com/file/d/1AjLyOo_3uBo7X9_-TvEyuyMZKfRxqauT/view?usp=sharing)
 
-- [ [STEP_2] CnCnet](https://cncnet.org/red-alert-2)
+- [ [STEP_2] CnCnet](https://downloads.cncnet.org/CnCNet5_YR_Installer.exe)
 
 - [ [STEP_3] Mental Omega](http://mentalomega.com/index.php?page=download)
 
