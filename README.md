@@ -7,7 +7,7 @@ I. MÌ ĂN LIỀN **[DỄ LỖI]** [CẬP NHẬT LẦN CUỐI 21/02/2023]:
 
 II. TẢI THỦ CÔNG TỪNG PHẦN TỪ NHÀ PHÁT TRIỂN **[Không lỗi]**
 
-[Dowload Full [STEP_0,1,2,3,4,5] nếu này lỗi tải từng phần bên dưới](https://drive.google.com/drive/folders/1NFZM_R2-hb8-4ccx9ODexnfmRajlzSsf?usp=sharing)
+[Dowload Full [STEP_0,1,2,3,4,5] nếu này lỗi tải từng phần bên dưới](https://drive.google.com/file/d/1f9ADPcXNd6f5jSwJ_sykoBcIhhqY_JOF/view?usp=share_link)
 
 
 
