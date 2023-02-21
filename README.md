@@ -11,7 +11,7 @@ II. TẢI THỦ CÔNG TỪNG PHẦN TỪ NHÀ PHÁT TRIỂN **[Không lỗi]**
 
 
 
-- [ [STEP_1] Red Alert 2 Yuri_s Revenge](https://drive.google.com/file/d/1AjLyOo_3uBo7X9_-TvEyuyMZKfRxqauT/view?usp=sharing)
+- [ [STEP_1] Red Alert 2 Yuri_s Revenge](https://drive.google.com/file/u/6/d/1f9ADPcXNd6f5jSwJ_sykoBcIhhqY_JOF/view?usp=share_link)
 
 - [ [STEP_2] CnCnet](https://downloads.cncnet.org/CnCNet5_YR_Installer.exe)
 
