@@ -7,11 +7,11 @@ I. MÌ ĂN LIỀN **[DỄ LỖI]** [CẬP NHẬT LẦN CUỐI 21/02/2023]:
 
 II. TẢI THỦ CÔNG TỪNG PHẦN TỪ NHÀ PHÁT TRIỂN **[Không lỗi]**
 
-[Dowload Full [STEP_0,1,2,3,4,5] nếu này lỗi tải từng phần bên dưới](https://drive.google.com/file/d/1f9ADPcXNd6f5jSwJ_sykoBcIhhqY_JOF/view?usp=share_link)
+[Dowload Full [STEP_0,1,2,3,4,5] nếu này lỗi tải từng phần bên dưới](https://drive.google.com/uc?export=download&id=1f9ADPcXNd6f5jSwJ_sykoBcIhhqY_JOF)
 
 
 
-- [ [STEP_1] Red Alert 2 Yuri_s Revenge](https://drive.google.com/file/u/6/d/1f9ADPcXNd6f5jSwJ_sykoBcIhhqY_JOF/view?usp=share_link)
+- [ [STEP_1] Red Alert 2 Yuri_s Revenge](https://drive.google.com/uc?export=download&id=1AjLyOo_3uBo7X9_-TvEyuyMZKfRxqauT)
 
 - [ [STEP_2] CnCnet](https://downloads.cncnet.org/CnCNet5_YR_Installer.exe)
 
