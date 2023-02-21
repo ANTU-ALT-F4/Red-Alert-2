@@ -1,6 +1,6 @@
 ![](https://i.imgur.com/OrjTWmK.jpg)
 
-[CHUẨN BỊ]( )
+[CHUẨN BỊ](https://github.com/ANTU-ALT-F4/CHUANBI)
 
 I. MÌ ĂN LIỀN **[DỄ LỖI]** [CẬP NHẬT LẦN CUỐI 21/02/2023]: 
 [GIẢI NÉN RA VÀ CHƠI]()
