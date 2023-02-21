@@ -17,7 +17,8 @@ II. TẢI THỦ CÔNG TỪNG PHẦN TỪ NHÀ PHÁT TRIỂN **[Không lỗi]**
 
 - [ [STEP_3] Mental Omega](http://mentalomega.com/index.php?page=download)
 
-- [ [STEP_4] English Movies [Cutscenes]](https://drive.google.com/file/d/1oOJNa9HfQ8c7gIPwO03CiaXxZFYioT-Z/view?usp=sharing)
+- [ [STEP_4] FIXLOI]()
 
 - [ [STEP_5] VIDEO HOW TO INSTALL](https://youtube.com/playlist?list=PLMkkahCVDnIvK6ZJ6IcEZ7MSqecF5ZxZ0)
 
+- [ [STEP_6] English Movies [Cutscenes]](https://drive.google.com/file/d/1oOJNa9HfQ8c7gIPwO03CiaXxZFYioT-Z/view?usp=sharing)
