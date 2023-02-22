@@ -17,7 +17,7 @@ II. TẢI THỦ CÔNG TỪNG PHẦN TỪ NHÀ PHÁT TRIỂN **[Không lỗi]**
 
 - [ [STEP_3] Mental Omega](http://mentalomega.com/index.php?page=download)
 
-- [ [STEP_4] FIXLOI]()
+- [ [STEP_4] FIX-ERROR](https://drive.google.com/file/d/1FQpNSF1rc5IH4SV9bGbaB2svm3Xx5a4i/view?usp=sharing)
 
 - [ [STEP_5] VIDEO HOW TO INSTALL](https://youtube.com/playlist?list=PLMkkahCVDnIvK6ZJ6IcEZ7MSqecF5ZxZ0)
 
