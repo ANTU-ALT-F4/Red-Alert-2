@@ -23,4 +23,4 @@ II. TẢI THỦ CÔNG TỪNG PHẦN TỪ NHÀ PHÁT TRIỂN **[Không lỗi]**
 
 - [ [STEP_6] English Movies [Cutscenes]](https://drive.google.com/file/d/1oOJNa9HfQ8c7gIPwO03CiaXxZFYioT-Z/view?usp=sharing)
 
-[Hướng Dẫn Chơi Game](https://drive.google.com/file/d/1qJ5h8S6XZ7tmDYqqIw2hiv9Ox2BqWC-Y/view?usp=sharing)
+[Hướng Dẫn Chơi Game](https://drive.google.com/file/d/1LUBq9OBVc3eGAHpyFy2mE8YB9JvMRiVW/view?usp=sharing)
