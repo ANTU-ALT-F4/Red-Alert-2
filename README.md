@@ -2,12 +2,12 @@
 
 [CHUẨN BỊ](https://github.com/ANTU-ALT-F4/CHUANBI)
 
-I. MÌ ĂN LIỀN **[DỄ LỖI]** [CẬP NHẬT LẦN CUỐI 21/02/2023]: 
+I. MÌ ĂN LIỀN **[DỄ LỖI]** [CẬP NHẬT LẦN CUỐI 22/02/2023]: 
 [GIẢI NÉN RA VÀ CHƠI](https://drive.google.com/file/d/1ghsSjFXuoTECS247Ysivl3xHU3eNkMKW/view?usp=sharing)
 
 II. TẢI THỦ CÔNG TỪNG PHẦN TỪ NHÀ PHÁT TRIỂN **[Không lỗi]**
 
-[Dowload Full [STEP_0,1,2,3,4,5] nếu này lỗi tải từng phần bên dưới](https://drive.google.com/uc?export=download&id=1f9ADPcXNd6f5jSwJ_sykoBcIhhqY_JOF)
+[Dowload Full [STEP_0,1,2,3,4,5] (CẬP NHẬT LẦN CUỐI 22/02/2023)](https://drive.google.com/uc?export=download&id=1f9ADPcXNd6f5jSwJ_sykoBcIhhqY_JOF)
 
 
 
