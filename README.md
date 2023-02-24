@@ -3,7 +3,7 @@
 [CHUẨN BỊ](https://github.com/ANTU-ALT-F4/CHUANBI)
 
 I. MÌ ĂN LIỀN **[DỄ LỖI]** [CẬP NHẬT LẦN CUỐI 22/02/2023]: 
-[GIẢI NÉN RA VÀ CHƠI](https://drive.google.com/file/d/1ghsSjFXuoTECS247Ysivl3xHU3eNkMKW/view?usp=sharing)
+[GIẢI NÉN RA VÀ CHƠI](https://drive.google.com/uc?export=download&id=1ghsSjFXuoTECS247Ysivl3xHU3eNkMKW)
 
 II. TẢI THỦ CÔNG TỪNG PHẦN TỪ NHÀ PHÁT TRIỂN **[Không lỗi]**
 
